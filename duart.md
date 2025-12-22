@@ -1,4 +1,4 @@
-The hills rose hard wherever e'er stood,
+The hills rose hard where e'er stood,
 Their feet set firm in stone and rain;
 The land took oath in flesh and blood
 And learned the weight of clan Maclean
