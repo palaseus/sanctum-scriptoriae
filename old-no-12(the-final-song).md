@@ -20,7 +20,7 @@ The passing of their time left no stain,
 Through this tone the world’s true form was wrung.
 No loss remained; no mortal grief was hung.
 The final sound endured, unclaimed, alone,
-A crown of silence made from each alone.
+A crown of silence made from each, their own.
 
 
 
