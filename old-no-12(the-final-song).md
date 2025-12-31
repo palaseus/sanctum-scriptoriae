@@ -25,3 +25,15 @@ A crown of silence made from each, their own.
 
 
 kbm.
+
+
+
+Old/new context:
+
+https://www.orlandosentinel.com/2025/12/29/12-swans-found-dead-at-orlandos-lake-eola-park-bird-flu-suspected/ ->
+
+Old No. 2 (The Final song) Is written ->
+
+https://www.msn.com/en-in/news/world/what-is-uvb-76-russia-s-mysterious-doomsday-radio-plays-swan-lake-after-alleged-putin-assassination-attempt/ar-AA1TjsWi?ocid=BingNewsSerp
+
+.
