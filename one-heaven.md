@@ -1,4 +1,4 @@
-There's a selet few it makes a difference to-
+There's a select few it makes a difference to-
 but rest-assured: it matters to thee.
 The truth is, it takes a fool
 to assume that any papal bull
