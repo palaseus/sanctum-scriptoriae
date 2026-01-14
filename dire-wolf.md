@@ -11,7 +11,7 @@ and what would prosper now pays the price.
 With no wind fall, and the forest still;
 soaring cedar carries the hunger's will.
 No points to count, there's only a cost;
-No trophy hangs for things that are lost.
+no trophy hangs for things that are lost.
 
 A midsummer morning now has need for fire;
 an unfortunate act becomes what is admired.
