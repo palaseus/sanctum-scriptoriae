@@ -1,4 +1,4 @@
-We were the Calvary Company once, Young hearts ablaze with glory's fire, But war has taught us what it wants— It burns away each vain desire.
+We were the Cavalry Company once, Young hearts ablaze with glory's fire, But war has taught us what it wants— It burns away each vain desire.
 
 The horses know the weight we bear, They feel the trembling in our hands, We ride through death's cold, bitter air, Across these godforsaken lands.
 
