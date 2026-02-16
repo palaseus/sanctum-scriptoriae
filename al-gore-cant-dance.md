@@ -1,5 +1,3 @@
-Al Gore Can’t Dance
-
 He steps to the floor in a suit pressed precise,  
 tie knotted like code, shoes polished for ice.  
 The beat kicks hard, bass thumps in the chest,  
