@@ -12,4 +12,5 @@ I've never been one for empathy, in fact it's the opposite for me, generally, bu
 You and I were phosphorous, chemically. Composition-B every moment, explosive, potentially. No remedy for the shockwaves felt in all of our extremities until it rained, then it poured, the sky fell exponentially.
 
 
+
 kbm.
