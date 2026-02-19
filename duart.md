@@ -17,3 +17,7 @@ The loch keeps truths the tongue lets go,
 The wind repeats what bones retain:
 What’s taken still moves deep below
 Duart, the heart of the clan Maclean.
+
+
+
+kbm.
