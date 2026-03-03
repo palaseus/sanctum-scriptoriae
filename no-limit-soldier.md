@@ -46,7 +46,7 @@ But No Limit vision sees the future in the distant.
 Not psychic, just strategic, got the magic and the focus,
 On building something lasting while the rest follow the locust,
 With the quick fix, the fast cash, the right now and never later,
-The soldier playing chess while they playing penny-wager.
+The soldier playing chess can't just make a penny-wager.
 
 Stakes is life and death, but death doesn't only mean the body,
 It means the death of dreams, potential, everybody
