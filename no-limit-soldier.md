@@ -50,7 +50,7 @@ The soldier playing chess can't just make a penny-wager.
 
 Stakes is life and death, but death doesn't only mean the body,
 It means the death of dreams, potential, everybody
-Who coulda been somebody, but the limit was accepted,
+Who could have been somebody, but the limit was accepted,
 Like a sentence that was given and was never once contested.
 
 No Limit means appeal, means fight, means resist outside resistance,
@@ -125,7 +125,7 @@ To step into the void and make the universe a home.
 
 No Limit Soldier territory is everywhere a soldier is standing,
 A state of mind, a way of being, an energy that always sticks the landing,
-That separates the ones who sit settle from the ones who stand and soar,
+That separates the ones who sit and settle from the ones who stand and soar,
 The ones who accept whatever's given from the ones who make demands for more.
 
 Not greed, just growth, not taking, just precision
