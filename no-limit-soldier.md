@@ -136,7 +136,7 @@ Where a soldier's real education begins with refusing to be fooled.
 By the "limit", by the lies, by the "this is how it is,"
 No Limit means the answer to that statement's always "his,"
 Or hers, never theirs, it's always been ours, the power to define,
-Reality belongs to those who look to see and still dares to cross the line.
+Reality belongs to those who look to see and still dare to cross the line.
 
 That separates the possible from the "impossible" they preach,
 A soldier lives in terrain that's just beyond the reach,
