@@ -100,7 +100,7 @@ But division is the tactic, and they will stand on that forever.
 
 The power in the hands of the few who set the limits,
 On what's possible, achievable, within a certain premise,
-But No Limit Soldiers operates outside the frame,
+But No Limit Soldiers operate outside the frame,
 Rejects the board entirely when they're playing the game.
 
 New rules, new moves, new understanding of the mission,
