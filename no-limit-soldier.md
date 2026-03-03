@@ -48,7 +48,7 @@ On building something lasting while the rest follow the locust,
 With the quick fix, the fast cash, the right now and never later,
 The soldier playing chess can't just make a penny-wager.
 
-Stakes is life and death, but death doesn't only mean the body,
+Stakes are life and death, but death doesn't only mean the body,
 It means the death of dreams, potential, everybody
 Who could have been somebody, but the limit was accepted,
 Like a sentence that was given and was never once contested.
