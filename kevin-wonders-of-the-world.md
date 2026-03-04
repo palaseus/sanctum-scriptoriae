@@ -71,7 +71,7 @@
     Consequence, it's engineered, it feels like balkanized perception,
     makes collective action harder, doesn't it? When truth becomes subjective,
     he sees the Fourth Turning playing out in its own way in real time,
-    crisis, climax, resolution, so it's only ever the cycle can climb.
+    crisis, climax, resolution, so it's only ever the cycle that can climb.
 
     Once again, Kevin reads Strauss and Howe before breakfast,
     In contemplation of generational theory while the rest
