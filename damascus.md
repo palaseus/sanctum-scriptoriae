@@ -18,3 +18,7 @@ or how bread smells in the pre-dawn. You can't franchise Damascus.
 
 I tried to write this without jasmine, without nightingales, without
 all the tourbook garbage. But the jasmine doesn't read poems about Damascus.
+
+
+
+kbm.
