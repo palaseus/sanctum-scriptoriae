@@ -15,7 +15,7 @@ I just surf, nose up, toes down
 I jet sweep across the turf
 Wheels up, can't land, no going down
 No huddle offense, I don't need the playbook
-Audible at the line, us the insight and change the whole outlook
+Audible at the line, use the insight and change the whole outlook
 They study my tape like it's Zapruder footage
 Frame by frame trying to see how I took it
 From nothing, crickets, all the way to nuclear 
