@@ -69,7 +69,7 @@ Not for ego, not for show, but the things that only soul can know,
 That limits are illusions, and a soldier will always find a way to grow.
 
 Past the pain, through the struggle, finding Zion and euphoria,
-The more they try to stop it, the more they awake warrior,
+The more they try to stop it, the more they awake the warrior,
 Not by choice, but by design, life initiates you into it,
 A No Limit Soldier born and made from everything they missed.
 
