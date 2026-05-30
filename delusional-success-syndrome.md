@@ -29,7 +29,7 @@ while they were still standing on it had it.
 It's a thing that grows in me perhaps
 in a way that terrifies people
 who need me to understand my own limitations
-in a way i simply refuse to do.
+in a way I simply refuse to do.
 
 Perhaps some diagnoses are reversed, beyond.
 
