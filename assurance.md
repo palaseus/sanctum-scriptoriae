@@ -7,8 +7,8 @@ Then we figure out what we lack.
 There's never fondness found in any absence.
 Only dread in every moment's passing with no effort.
 
-Yet there's no searching required to find the dimmed lights that fill midnights; save the lonely. 
-There's neither a smell, nor a flare in this damp night air, as these aren't fires for cooking.
+Yet, there is searching required to find the dimmed lights that fill midnights; save the lonely. 
+For there's neither a smell, nor a flare, in this damp night air, as these aren't fires for cooking.
 Just lost souls looking for their one and only.
 
 
