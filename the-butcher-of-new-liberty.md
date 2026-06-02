@@ -45,3 +45,7 @@ in the quiet of the abattoir, and heart, he knows what he hid!
 
 While the apron still hangs, clean, on the hook by the door...
 the bell no longer rings for there's nothing left in store.
+
+
+
+kbm.
