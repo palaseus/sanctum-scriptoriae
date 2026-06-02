@@ -40,7 +40,7 @@ to anything tall that dare believes its own view.
 
 He will carve himself up a legacy from what he has consumed,
 call it a vision, or sacrifice, whatever it is; it blooms.
-The butcher of New Liberty will always know what he did,
+The Butcher of New Liberty will always know what he did,
 in the quiet of the abattoir, and heart, he knows what he hid!
 
 While the apron still hangs, clean, on the hook by the door...
