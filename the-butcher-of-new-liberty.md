@@ -24,7 +24,7 @@ The fee is your future and your forefather's deed,
 the slow-accrued trust that you planted like seed.
 
 He renamed every wound so it felt like a gift,
-called the the divide a feature, whole, and the fall a "lift."
+called the divide a feature, whole, and the fall a "lift."
 Had economists confirm it in a twelve-page decree,
 had the choir sing the footnotes on prime-time TV.
 
