@@ -23,7 +23,7 @@ drew a deed in the dark and called the wilderness home.
 The wildest part? The deed gets renewed every day,
 notarized by a mind that's too busy to say.
 
-But, wait—
+But, wait-
 
 Nobody wins the Cognitive Wild West,
 You just learn to draw slower and aim with the best!
