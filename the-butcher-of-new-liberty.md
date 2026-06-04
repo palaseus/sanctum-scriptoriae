@@ -3,7 +3,7 @@ a ribbon-cut podium, an olive branch, and holly leaf.
 Then called him the surgeon of the body politic,
 the cure for the fever and the man with the trick.
 
-He smiled like a statute of himself in advance,
+He smiled like a statue of himself in advance,
 shook the right hands in a well-rehearsed dance.
 The crowd threw their confetti as if they allowed him a debt,
 never asking what exactly they were paying for yet.
