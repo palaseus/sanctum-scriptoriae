@@ -1,7 +1,7 @@
 The only time you should vacate your throne is while you're standing up for something you believe in
 the rest is ceremonial; cold marble, and the long deceiving.
 A crown is just the weight of what you haven't done yet,
-a promissory to yourself the mirror helps you to forget.
+a promise to yourself the mirror helps you to forget.
 
 I've watched men grip their armrests through a flood,
 calling the water holy when the drought is in their blood.
