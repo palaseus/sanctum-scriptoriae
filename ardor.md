@@ -24,7 +24,7 @@ It's the thing that makes your heart move before your mind says go,
 and the altar you keep returning to regardless of the snow.
 
 Vacate your throne for that and when you sit again,
-you won't be sitting. You'll be reigning.
+you'll begin to reign.
 
 
 
