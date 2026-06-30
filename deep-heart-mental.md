@@ -12,7 +12,7 @@ or the blue in your eyes I could never look away,
 a shade I grew to despise for a moment, but in the end I miss.
 
 After I find myself lost in those days where I could barely laugh,
-but now I can't help but find it funny what we've found in these paragraphs.
+I can't help but find it funny what we've found in these paragraphs.
 
 
 
