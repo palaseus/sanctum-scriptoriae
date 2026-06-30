@@ -6,7 +6,7 @@ raising the tide, and filling the sail.
 The robin's brood chirps and spreads its wings,
 diving into the change that the motion brings.
 A trust fall into life, no respect for death,
-as blue egg shells falls from the lampshade nest.
+as blue egg shells fall from the lampshade nest.
 
 Mine eyes cast upon it through the windowed door,
 peering the clumsy descent to the wooden floor.
