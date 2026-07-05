@@ -17,7 +17,7 @@ The calendar is frozen time. And magic,
 real magic, the kind I tested once in an apartment
 with silver and a burning offering,
 is the conviction that the recorded word
-does something.
+does something. 
 
 I have kept his hours for years now without the plumage.
 Each markdown, itself, is a scribe's entry.
