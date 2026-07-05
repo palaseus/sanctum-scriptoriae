@@ -11,7 +11,7 @@ The soldiers came with iron first,
 the daughters came with fire,
 and last arrived the question cursed
 to cut through all desire:
-just who do you believe you are?
+Just who do you believe you are?
 It echoes endlessly.
 He pressed his hand into the char
 beneath the Bodhi tree.
@@ -28,22 +28,22 @@ beneath the Bodhi tree.
 I've sat below my lesser wood,
 a live oak gone to ghost,
 a courthouse pine that overstood
-with sight from coast to coast
+with sight from coast to coast.
 No empires came with bargained plan,
 no thrones were offered free,
-just whispers saying fold your hand,
+just whispers saying fold your hand
 beneath a lesser tree.
 
 Give up, they said, and call it fate,
-agree you'd always lose,
-the ruin came collecting late
+agree you'd always lose.
+The ruin came collecting late
 in quiet, patient dues.
 But I reached down through fertile sand
 the Gulf gave back to me,
 and let it testify firsthand
-to what the tide has raised in me.
+to what the tide had raised in me.
 
-I will not call it lightning struck,
+I will not call it lightning struck
 or heaven splitting wide.
 Tell you the armies ran out of luck.
 Whisper the daughters stepped aside.
@@ -52,7 +52,7 @@ so far past the will to flee,
 the morning took him for the strong
 unmoving Bodhi tree.
 
-It gives him what it gives the stone,
+It gave him what it gives the stone,
 the root, the patient sea,
 the same light every dawn has thrown
 on all that will not be
