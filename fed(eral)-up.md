@@ -12,7 +12,7 @@ The owl in the garden keeps quiet rotation.
 
 They scoff at the letters, dismissed the notation,
 until the couriers fell and exposed the relation.
-Now every denial is serves as a tacit admission,
+Now every denial serves as a tacit admission,
 and silence in and of itself is a form of submission.
 There won't be any stopping without confirmation.
 
