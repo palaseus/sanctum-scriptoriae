@@ -20,7 +20,7 @@ and quiet's a debt with an interest that compounds the longer they're staring.
 
 So dig if the digging consoles you, but take care to consult with the stone,
 a grave means nothing more than what it's holding, and this one is holding a loan.
-He's out there, a dead man or collateral walking either way a signature has come to collect.
+He's out there, a dead man or collateral walking; either way a signature has come to collect.
 The name that they never bothered with checking is the name they will learn to respect.
 
 
