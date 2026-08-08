@@ -10,7 +10,7 @@ then battle the silence that echoes and carries relentless.
 
 May the strength that it takes be found to roll your dice,
 even when these cubes are loaded with with lead and poltergeists.
-under the crescent moon as the lunacy folds the night,
+Under the crescent moon as the lunacy folds the night,
 while the tips of your fingers reach for what's out of sight.
 
 
