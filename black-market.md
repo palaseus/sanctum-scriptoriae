@@ -15,7 +15,7 @@ A whisper starts its journey through the very marrow of my spine:
 
 Maybe hunger is a compass that's been pointing at the fault,
 perhaps genius is in obedience to it's pension in the vault.
-Trust that all my burning mattered like a candle to the sun 
+Lose trust that all my burning mattered like a candle to the sun 
 for if art is what the buyer says, then mine was never one.
 
 No. The fire wasn't lit for them and hunger will never be proof
