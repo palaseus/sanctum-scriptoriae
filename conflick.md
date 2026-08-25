@@ -4,7 +4,7 @@ I found my enlightenment where souls distill,
 the point where God's Plan crosses Free Will.
 
 Now abandoned the cauldron, for fearful the witch
-of the lines of the salt and the spiritual gift.
+of the lines of the salt surrounding their spiritual ditch.
 They are conveyed about in a bottle, a comfortable hearse,
 reflecting energetic waste from the bottom of the universe.
 
