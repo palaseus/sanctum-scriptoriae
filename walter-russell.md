@@ -1,5 +1,3 @@
-""Walter Russell"
-
 What of a man? To draw the light before he found its name,
 A cosmic blueprint burning eternally in his frame,
 While others measured atoms, playing it safe and small,
